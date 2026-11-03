@@ -1,1 +1,1 @@
-xc是女猫娘
+xc is catgirl
